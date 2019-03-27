@@ -1,1 +1,2 @@
 # You're only given a little spark of madness. You musn't lose it
+# Power resides where men believe it resides. It’s a trick. A shadow on the wall. And a very small man can cast a very large shadow. - Lord Varys
