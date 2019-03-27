@@ -1,1 +1,1 @@
-# SFHelpers
+# You're only given a little spark of madness. You musn't lose it
